@@ -1,1 +1,1 @@
-# credit-card
+This repository is not for public use ( STAY OFF!!! )
